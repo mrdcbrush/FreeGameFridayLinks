@@ -2,7 +2,7 @@
 
 Archived from: [Techhive](http://www.techhive.com)
 
-##All Against One, Temple of the Spear, and Mad Men: the Game
+##[All Against One, Temple of the Spear, and Mad Men: the Game](http://www.techhive.com/article/252494/free_friday_all_against_one_temple_of_the_spear_and_mad_men_the_game.html)
 *March 23, 2012*
 
 + [Temple of the Spear](http://www.kongregate.com/games/malecs2b/temple-of-the-spear)
