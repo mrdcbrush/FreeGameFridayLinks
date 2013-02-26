@@ -9,56 +9,56 @@ Archived from: [Techhive](http://www.techhive.com)
 + [All Against One](http://www.freeindiegam.es/2012/03/all-against-one-leon-arnott/)
 + [Mad Men: The Game](http://www.youtube.com/watch?v=nW5mZey1iXw&feature=youtu.be)
 
-##BrowserQuest, Craequ, Apollo 18+20
+##[BrowserQuest, Craequ, Apollo 18+20](http://www.techhive.com/article/252873/free_friday_browserquest_craequ_apollo_18_20.html)
 *March 30, 2012*
 
 + [BrowserQuest](http://hacks.mozilla.org/2012/03/browserquest/)
 + [Craequ](http://jonathanwhiting.com/ld/22/)
 + [Apollo 18 + 20](http://pr-if.org/event/apollo-18/)
 
-##A Twist on Portal Puzzles and Free Games Inspired by Peter Molyneux
+##[A Twist on Portal Puzzles and Free Games Inspired by Peter Molyneux](http://www.techhive.com/article/253375/free_friday_a_twist_on_portal_puzzles_and_free_games_inspired_by_peter_molyneux.html)
 *April 6, 2012*
 
 + [Pause Ahead](http://www.whatwouldmolydeux.com/display.php?GameID=141)
 + [Let’s Protest](http://www.whatwouldmolydeux.com/display.php?GameID=210)
 + [Friends Till the End](http://www.whatwouldmolydeux.com/display.php?GameID=246%5D)
 
-##A Russian Arcade Game and 38 Versions of Pong
+##[A Russian Arcade Game and 38 Versions of Pong](http://www.techhive.com/article/253686/free_friday_a_russian_arcade_game_and_38_versions_of_pong.html)
 *April 23, 2012*
 
 + [Pongs](http://www.pippinbarr.com/games/pongs/Pongs.html)
 + [Morskoi Boi](http://morskoy-boy.15kop.ru/en/game/)
 + [The Shadowland Prophecy](http://msm.runhello.com/?p=544)
 
-##I Saw Her Standing There, SCP Containment Breach and More
+##[I Saw Her Standing There, SCP Containment Breach and More](http://www.techhive.com/article/254120/free_friday_i_saw_her_standing_there_scp_containment_breach_and_more.html)
 *April 20, 2012*
 
 + [I Saw Her Standing There](http://www.kongregate.com/games/krangGAMES/i-saw-her-standing-there)
 + [The Republia Times](http://pope.jeffsys.net/)
 + [SCP Containment Breach](http://scpcb.wordpress.com/)
 
-##A Typing Game That Teaches it Wrong and an Abbreviated Mario Brothers
+##[A Typing Game That Teaches it Wrong and an Abbreviated Mario Brothers](http://www.techhive.com/article/254563/free_friday_a_typing_game_that_teaches_it_wrong_and_an_abbreviated_mario_brothers_.html)
 *April 27, 2012*
 
 + [Lililput](http://www.kongregate.com/games/incredibleape/lililput)
 + [A Super Mario Summary](http://johanpeitz.com/asms/)
 + [Tinysasters](http://stormalligator.com/tinysasters/)
 
-##A Modern Spin on Asteroids, A Platformer Where You Make the Platforms and More
+##[A Modern Spin on Asteroids, A Platformer Where You Make the Platforms and More](http://www.techhive.com/article/254936/free_game_friday_a_modern_spin_on_asteroids_a_platformer_where_you_make_the_platforms_and_more_.html)
 *May 4, 2012*
 
 + [Astro Break](http://dl.dropbox.com/u/17039075/LD23/index.html)
 + [stack::tracker()](http://www.freeindiegam.es/2012/04/stacktracer-nihilocrat/)
 + [Words and Physics](http://armorgames.com/play/13226/words-and-physics)
 
-##A Tiny Wizard and Wolfenstein 3D in Your Browser
+##[A Tiny Wizard and Wolfenstein 3D in Your Browser](http://www.techhive.com/article/255401/free_game_friday_a_tiny_wizard_and_wolfenstein_3d_in_your_browser.html)
 *May 11th, 2012*
 
 + [Mirror Rays](http://keenblaze.com/swfs/Mirrors.swf)
 + [Tiny Wizard](http://www.kongregate.com/games/zinkinteractive/tiny-wizard)
 + [Wolfenstein](http://wolfenstein.bethsoft.com/game_NA.php)
 
-##Two New Platformers and an Awesome God Game
+##[Two New Platformers and an Awesome God Game](http://www.techhive.com/article/256212/free_game_friday_two_new_platformers_and_a_god_game_thats_easy_on_the_eyes.html)
 *May 25, 2012*
 
 + [Recursion](http://www.bigdino.com/game/482/Recursion#)
