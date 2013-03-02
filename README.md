@@ -352,7 +352,6 @@ Archived from: [Techhive](http://www.techhive.com)
 + [Rebirth: The Tibetan Game of Liberation](http://www.techhive.com/article/2027592/free-game-friday-difficult-games.html#rebirth:thetibetangameofliberation)
 + [Super Puzzle Platformer Plus](http://games.adultswim.com/super-puzzle-platformer-plus-online-puzzle-game.html)
 
-
 ##Games About the Future
 *February 15, 2013*
 
@@ -370,3 +369,12 @@ Archived from: [Techhive](http://www.techhive.com)
 + [Swift Stitch](http://www.sophiehoulden.com/games/swiftstitch/)
 + [Binary Boy](http://www.data-fi.org/binaryboy/)
 + [Nondevicer](http://www.newgrounds.com/portal/view/610818)
+
+##[Games of Confusion](http://www.techhive.com/article/2029715/free-game-friday-games-of-confusion.html)
+*March 1, 2013*
+
++ [Where Am I?](http://www.kongregate.com/games/nemesysgames/pursued-where-am-i)
++ [Zen](http://www.newgrounds.com/portal/view/611877)
++ [Drop a Beat, Giuseppe](http://www.newgrounds.com/portal/view/611877)
++ [Cave Salamander](http://cargointeractive.com/caveSalamanderContent.html)
++ [Shotguns in the Dark](http://dl.droqbox.com/shotgunsinthedark.swf)
