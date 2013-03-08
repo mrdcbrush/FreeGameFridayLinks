@@ -378,3 +378,13 @@ Archived from: [Techhive](http://www.techhive.com)
 + [Drop a Beat, Giuseppe](http://www.newgrounds.com/portal/view/611877)
 + [Cave Salamander](http://cargointeractive.com/caveSalamanderContent.html)
 + [Shotguns in the Dark](http://dl.droqbox.com/shotgunsinthedark.swf)
+
+
+##[Doing it Wrong](http://www.techhive.com/article/2030226/free-game-friday-doing-it-wrong.html)
+*March 8, 2013*
+
++ [A Small Talk at the Back of Beyond](http://scriptwelder.com/games/asmalltalk/)
++ [simian.interface](http://vested-interest.co/simian/browser/index.html)
++ [Avant-Garde](http://playavantgarde.com/)
++ [Bombermine](http://bombermine.com/)
++ [FPS-Man](http://www.kongregate.com/games/briderider/fps-man)
