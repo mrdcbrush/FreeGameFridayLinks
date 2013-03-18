@@ -388,3 +388,13 @@ Archived from: [Techhive](http://www.techhive.com)
 + [Avant-Garde](http://playavantgarde.com/)
 + [Bombermine](http://bombermine.com/)
 + [FPS-Man](http://www.kongregate.com/games/briderider/fps-man)
+
+
+##[Games with History](http://www.techhive.com/article/2030849/free-game-friday-games-with-history.html)
+*March 15, 2013*
+
++ [Genesis of Pixel](http://www.kongregate.com/games/rocky10529/genesis-of-pixel)
++ [Stranger Than Fiction](http://gamejolt.com/games/other/stranger-than-fiction/12758/)
++ [Pakkuman’s Defense](http://tametick.com/pd/)
++ [Grow Maze](http://www.eyezmaze.com/eyezblog_en/blog/2013/03/grow_maze_game.html)
++ [Lazerman](http://www.newgrounds.com/portal/view/612260)
