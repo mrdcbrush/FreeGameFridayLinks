@@ -398,3 +398,13 @@ Archived from: [Techhive](http://www.techhive.com)
 + [Pakkuman’s Defense](http://tametick.com/pd/)
 + [Grow Maze](http://www.eyezmaze.com/eyezblog_en/blog/2013/03/grow_maze_game.html)
 + [Lazerman](http://www.newgrounds.com/portal/view/612260)
+
+
+##[Weeklong Roguelike Challenge](http://www.techhive.com/article/2031442/free-game-friday-weeklong-roguelike-challenge.html)
+*March 22, 2013*
+
++ [Depths of Tuzua](http://stormalligator.com/depths-of-tuzua/)
++ [Double Rogue](http://www.kongregate.com/games/RatKingsLair/double-rogue)
++ [24Killers](http://www.seasonsdev.net/games/24-killers/)
++ [Hunted](http://oliverread.co.uk/hunted/)
++ [Gelatinous Cube](http://jasonhpickering.tumblr.com/GCube)
