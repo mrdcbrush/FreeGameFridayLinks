@@ -408,3 +408,13 @@ Archived from: [Techhive](http://www.techhive.com)
 + [24Killers](http://www.seasonsdev.net/games/24-killers/)
 + [Hunted](http://oliverread.co.uk/hunted/)
 + [Gelatinous Cube](http://jasonhpickering.tumblr.com/GCube)
+
+
+##[Expect the  Unexpected](http://www.techhive.com/article/2032333/free-game-friday-expect-the-unexpected.html)
+*March 28, 2013*
+
++ [Super Ninja Slash](http://superninjaslash.com/)
++ [Unnamed Dungeon Game](http://bastardlydungeon.com/blog/games/unamed-dungeon-game)
++ [Chaotic](http://www.newgrounds.com/portal/view/613088)
++ [Arena.XIsm](http://carywalkin.wordpress.com/2013/03/17/arena-xlsm-released/)
++ [Dungeon Blocks](http://www.techhive.com/#dungeonblocks)
